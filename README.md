@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @lewigao
 - 👀 I’m interested in: Chess
 - 🌱 I’m currently learning skills to: make mad cash
-- 💞️ I’m looking to collaborate on: anything really, my gigantic mind will be useful everywhere
+- 💞️ I’m looking to collaborate on: anything really, my garggantuan mind will be useful everywhere
 - 📫 How to reach me: send me a dm on instagram @lewigao
-- 😄 Pronouns: her/shey bar
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I play League of Legends :).
 
 <!---
